@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @attackninja, or Chao
 - 👀 I’m interested in producing with XR interaction, also in related research and development
 - 🎨 Art style: Video Installation Art/Great Void Art
-- 🔍 Recent research: further applicabilities for 8D control technologies
+- 🔍 Recent research: further applicabilities for 8 Dimensional control technologies
 - 🌱 Learning develop methods of interaction and AI (technical and aesthetical)
 - 📫 Email:dragonblast0012@outlook.com for collaboration or communication
 - 🗨️ Multiligual:English, Svenska, 汉语 are understandable
