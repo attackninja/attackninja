@@ -8,7 +8,7 @@
 - 😄 Pronouns: Pizza
 - ⚡ Fun fact:
 - Everyone will be world-famous for 15 minutes.(selected) -Andy Warhol.
-- Conciousness or language, which comes first is still argumental.
+- Conciousness or language, which forms first is still argumental.
 - There is a metaphysical point of centre called "Zhen" according to Taoism.
 
 <!---
