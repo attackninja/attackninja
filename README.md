@@ -5,7 +5,6 @@
 - 🌱 Learning develop methods of interaction and AI (technical and aesthetical)
 - 📫 Email:dragonblast0012@outlook.com for collaboration or communication
 - 🗨️ Multiligual:English, Svenska, 汉语 are understandable
-- 😄 Pronouns: Pizza
 - ⚡ Fun fact:
 - Everyone will be world-famous for 15 minutes.(selected) -Andy Warhol.
 - Conciousness or language, which forms first is still argumental.
